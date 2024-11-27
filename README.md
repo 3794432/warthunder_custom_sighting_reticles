@@ -1,0 +1,1 @@
+# warthunder_custom_sighting_reticles
